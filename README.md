@@ -1,0 +1,1 @@
+# disleksi_ogretmen_farkindaligi
